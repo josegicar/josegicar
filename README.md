@@ -5,9 +5,9 @@
 - 📫 How to reach me:
 -  You can follow me in this social networks:
   
-1. Instagram/Threads: @pepe_ec03
+|1. Instagram/Threads: @pepe_ec03
 2. Twitter(or X): @ec_pepe
-3. Reddit: u/JoSe__66
+3. Reddit: u/JoSe__66 |
 
 🐈‍⬛🐈‍⬛I also love cats and animals :)   🐈‍⬛🐈‍⬛
 
